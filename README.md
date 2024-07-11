@@ -1,5 +1,5 @@
 # hi
-i dont use github
+i dont use github  (edit thursay july 11 at 3am: I FUCKING LIED!!!!)
 
 most likely to not use account
 
